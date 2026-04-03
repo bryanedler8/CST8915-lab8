@@ -14,7 +14,7 @@
 
 ## Demo Video
 
-🎥 [Watch Demo Video](https://youtu.be/hFEAlE_E9uQ)
+🎥 [Watch Demo Video](https://youtu.be/nBzEagtVZIM)
 
 ---
 
